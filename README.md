@@ -1,2 +1,0 @@
-# chaonhalam
-CHAO Nha Lam
